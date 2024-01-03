@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning advanced reactjs and fluter, and i have knowledge in different programming languages like python,html,css,Javascript,
 - 💞️ i am committed to work I’m looking jobe with any company 
 - 📫 any one who need to work with me contact within the following address
-- mbolie no 0984999493 or hailerufael14@gmal.com
+- email=hailerufael14@gmal.com and telegram rufael haile by this no 0984999493
 - 
 
 <!---
